@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Metaveoxr
-- 👀 I’m interested in Music, Interactivity, Multimedia & coding
+- 👀 I’m interested in Art, Music, Interactivity, Multimedia & Coding
 - 🌱 I’m currently learning my way on the metaverse
 - 💞️ I’m looking to collaborate on meteaverse related stuff
 - 📫 How to reach me bassandread@yahoo.it
